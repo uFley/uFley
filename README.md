@@ -1,4 +1,4 @@
-# Olá, sou o Felipe Alles Garcia (ou **Fley**) 👋
+# Olá, meu nome é Felipe (ou **Fley**) 👋
 
 ## 📚 Educação
 
